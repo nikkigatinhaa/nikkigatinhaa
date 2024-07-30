@@ -1,4 +1,4 @@
-# Vim para aqui com paraquedas ⭐
+# Vim parar aqui com paraquedas ⭐
 
 Onde vim para, So queria paz, e tem que estudar, que foda KKKKKK
 
